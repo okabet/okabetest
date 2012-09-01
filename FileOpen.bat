@@ -1,0 +1,1 @@
+C:\Users\okabetn\Documents\•ÇŽ†\Black_Lagoon16-2.jpg
